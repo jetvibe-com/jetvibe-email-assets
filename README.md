@@ -1,0 +1,1 @@
+# jetvibe-email-assets
